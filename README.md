@@ -14,7 +14,7 @@
 <br>
 • Areas of Interest: Web Development, UI/UX Design, Graphic Design,Overall Video Editing And Specialized In Motion Graphics
 <br>
-• Video Editing Software: After Effects(PC).Alight Motion(Phone)
+• Video Editing Software: After Effects(PC),Alight Motion(Phone)
 <br>
 <br>
 🎯 What I’m Working On
